@@ -4,9 +4,12 @@ This is compiled list of resources & house rules
 
 ## Important links
 
+- all the resource: http://d20pfsrd.com
+- players guide : http://joes-sessions.weebly.com/uploads/5/2/4/2/5242106/ss0_-_serpents_skull_players_guide.pdf
 - Back story form:  https://goo.gl/forms/L42aYYOepA3zopn12
 
-
+## 3rd party
+3rd party material can only be used with DM approval. 
 
 ## Skills
 We will use the background skills alternative rules. 
