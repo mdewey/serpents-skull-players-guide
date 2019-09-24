@@ -12,42 +12,42 @@ But what starts off pleasant and fine, but, as with all good stories, that doesn
 
 For some for shadowing, a song, to the tune of Gilligan's Isle...
 
-Just roll your dice and you'll play a tale
-a tale of a fateful trip,
-that started from some merchant ports,
-aboard this mighty ship.
+Just roll your dice and you'll play a tale<br/>
+a tale of a fateful trip,<br/>
+that started from some merchant ports,<br/>
+aboard this mighty ship.<br/>
 
-The mate was a mighty sailin' man,
-the Skipper brave and sure,
-four players set sail that day,
-for a three hour tour,
-a three hour tour.
+The mate was a mighty sailin' man,<br/>
+the Skipper brave and sure,<br/>
+four players set sail that day,<br/>
+for a three hour tour,<br/>
+a three hour tour.<br/>
 
-The adventure starts getting rough,
-the might ship was tossed.
-If not for the courage of the fearless crew
-the _Jenivere_ would be lost.
+The adventure starts getting rough,<br/>
+the might ship was tossed.<br/>
+If not for the courage of the fearless crew<br/>
+the _Jenivere_ would be lost.<br/>
 
-So this is the tale of our castaways,
-they're here for a long, long time.
+So this is the tale of our castaways,<br/>
+they're here for a long, long time.<br/>
 
-They'll have to make the best of things,
-it's an uphill climb.
+They'll have to make the best of things,<br/>
+it's an uphill climb.<br/>
 
-The party and NPCs
-will do their very best,
-to survive, defend and adapt
-in their tropic island nest.
+The party and NPCs<br/>
+will do their very best,<br/>
+to survive, defend and adapt<br/>
+in their tropic island nest.<br/>
 
-No towns, no bars, no potion shop
-not a single luxury
-like Robinson Crusoe,
-it's primitive as can be.
+No towns, no bars, no potion shop<br/>
+not a single luxury<br/>
+like Robinson Crusoe,<br/>
+it's primitive as can be.<br/>
 
-So join us here each sess' my friends,
-you're sure to get a smile,
-from these stranded castaways
-here with Serpents Skull!
+So join us here each sess' my friends,<br/>
+you're sure to get a smile,<br/>
+from these stranded castaways<br/>
+here with Serpents Skull!<br/>
 
 ## Important links
 
