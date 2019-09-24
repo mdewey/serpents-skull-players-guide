@@ -20,8 +20,8 @@ aboard this mighty ship.<br/>
 The mate was a mighty sailin' man,<br/>
 the Skipper brave and sure,<br/>
 four players set sail that day,<br/>
-for a three hour tour,<br/>
-a three hour tour.<br/>
+for a normal trading trip,<br/>
+a normal trading trip.<br/>
 
 The adventure starts getting rough,<br/>
 the might ship was tossed.<br/>
